@@ -116,10 +116,12 @@
 * **Nico di Angelo:** AFK, NV, and or Off-Tab.
 * Any “Low Quiality” / Budget Cosplays. I’m off-tab (occasional replies may happen)
 * Any other cosplay, I’m more than likely off-tab.
-<p align="center">
- <image src="https://github.com/user-attachments/assets/ac732301-6166-4a6e-8d6b-96cba54c0dd1">
 
-> *“The final Lord I served."*
+<p align="center">
+ <image src="https://github.com/user-attachments/assets/f8836b72-a7f7-49de-97d5-02dac8d9da92" />
+ </p>
+     
+> *“Future Noy Quote Here."*
 
 <p align="center">
 ⋆｡°✩
