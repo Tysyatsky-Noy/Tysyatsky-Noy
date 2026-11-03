@@ -90,7 +90,7 @@
   <b>Sunnyfurina on Twitter.</b>
 </details>
 
-> *"Deeply I grieve, as I witness how you wallow in misunderstandings and wither away.”*
+> *"Future Noy Quote here”*
 
 <p align="center">
 ⋆｡°✩
