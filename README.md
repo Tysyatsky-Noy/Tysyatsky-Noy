@@ -5,10 +5,11 @@
 </p>
  
 <p align="center">
- <image src="https://github.com/user-attachments/assets/de301632-7e0f-4e73-9425-fdad0a73dd40">
+ <image src="https://github.com/user-attachments/assets/b48344f6-3c73-4423-96c5-85723a5847c3" />
+
 </p>
 
-> *"This is how you'll trust me."*
+> *"Future Noy Quote here."*
      
 <p align="center">
 ⋆｡°✩
@@ -27,9 +28,14 @@
 * **I Hide Freely** it's usually 15min to 24hrs.
 
 <p align="center">
- <img src="https://github.com/user-attachments/assets/f56c1a25-e1e5-498a-8b71-a9f8e476f2dd" />
+ <img src="https://github.com/user-attachments/assets/b9a157c0-010c-4e73-8222-6ad6a44855d7" />
 
- > *"It shall confound you, then you shall return to me."*
+<details>
+  <summary><i>Arist/Creator Claims</i></summary>
+  <b>sakonlieur on Twitter.</b>
+</details>
+
+ > *"Future Noy Quote Here."*
 
 ## ✩ **𝓒𝓱𝓪𝓻𝓪𝓬𝓽𝓮𝓻 𝓵𝓲𝓼𝓽, 𝓮𝓬𝓽.**
 * I heavily Kin Nico di Angelo, Dan Heng, Ardashir, and Liu Xiao.
@@ -42,7 +48,10 @@
 * **Ships that I’m okay to interact with:** This doesn’t mean if I’m sitting with someone as these two characters that it implies a ship interaction.
 <p align=center>
     
-    I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.
+<details>
+  <summary><i>Disclaimer</i></summary>
+  <b>I do not force these ships onto anyone or expect anyone to INT with me on these. Don’t force your ships onto me as I don’t do it to anyone else.</b>
+</details>
 
 * ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), ShiGuang/Chengguang (Link Click), JaeXiao (Link Click), I’m okay with most Link Click ships, Veinfei (Link Click), Veinxiao (Link Click), other ships, whisper if unsure (directed at friends and strangers).
 
@@ -51,7 +60,11 @@
 </p>
 
 <p align="center">
- <image src="https://github.com/user-attachments/assets/647cd482-0729-449a-ace3-ec84e62311a6" />
+ <image src="https://github.com/user-attachments/assets/1d2ec96f-d1a8-4d44-a54d-e80978fcca68" />
+<details>
+  <summary><i>Arist/Creator Claims</i></summary>
+  <b>LMABQN on Twitter.</b>
+</details>
 
 
 > *“I remain faithful, that all dying Universes rely upon your arbitration for survival.”*
@@ -70,7 +83,12 @@
 * MDZS and TGCF
 
 <p align="center">
- <img src="https://github.com/user-attachments/assets/caab8398-7db4-4dbf-bd9a-4470a148d6e0"/>
+ <img src="https://github.com/user-attachments/assets/9324243a-2176-4c3d-9bd5-ab5e31147b36" />
+
+<details>
+  <summary><i>Arist/Creator Claims</i></summary>
+  <b>Sunnyfurina on Twitter.</b>
+</details>
 
 > *"Deeply I grieve, as I witness how you wallow in misunderstandings and wither away.”*
 
