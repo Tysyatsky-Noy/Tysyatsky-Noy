@@ -67,7 +67,7 @@
 </details>
 
 
-> *“I remain faithful, that all dying Universes rely upon your arbitration for survival.”*
+> *“Future Noy Quote Here”*
 
 <p align="center">
 ⋆｡°✩
