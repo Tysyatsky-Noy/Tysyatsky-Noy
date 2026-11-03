@@ -1,4 +1,4 @@
-## ✩ "𝓒𝓸𝓶𝓮 𝔀𝓲𝓽𝓱 𝓶𝓮, 𝓔𝓷𝓭𝓶𝓲𝓷."
+## ✩ "𝓣𝓱𝓾𝓼 𝓘 𝓢𝓹𝓮𝓪𝓴."
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=❀.ೃ࿔&color=772237"> 
