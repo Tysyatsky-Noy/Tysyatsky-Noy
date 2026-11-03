@@ -31,7 +31,7 @@
  <img src="https://github.com/user-attachments/assets/b9a157c0-010c-4e73-8222-6ad6a44855d7" />
 
 <details>
-  <summary><i>Arist/Creator Claims</i></summary>
+  <summary><i>Artist/Creator Claims</i></summary>
   <b>sakonlieur on Twitter.</b>
 </details>
 
@@ -62,7 +62,7 @@
 <p align="center">
  <image src="https://github.com/user-attachments/assets/1d2ec96f-d1a8-4d44-a54d-e80978fcca68" />
 <details>
-  <summary><i>Arist/Creator Claims</i></summary>
+  <summary><i>Artist/Creator Claims</i></summary>
   <b>LMABQN on Twitter.</b>
 </details>
 
@@ -86,7 +86,7 @@
  <img src="https://github.com/user-attachments/assets/9324243a-2176-4c3d-9bd5-ab5e31147b36" />
 
 <details>
-  <summary><i>Arist/Creator Claims</i></summary>
+  <summary><i>Artist/Creator Claims</i></summary>
   <b>Sunnyfurina on Twitter.</b>
 </details>
 
